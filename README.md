@@ -1,1 +1,0 @@
-# Encoding_Technique
